@@ -1,1 +1,1 @@
-Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
+The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
