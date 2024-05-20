@@ -1,1 +1,1 @@
-The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
+The invention of the movable-type printing press by Johannes Gutenberg around 1440 revolutionized the spread of information in Europe.
