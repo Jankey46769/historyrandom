@@ -1,1 +1,1 @@
-The fall of the Soviet Union in 1991 marked the end of the Cold War era.
+Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
