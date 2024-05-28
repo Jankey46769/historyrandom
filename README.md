@@ -1,1 +1,1 @@
-The Vietnam War, spanning from 1955 to 1975, was a major conflict of the Cold War era.
+The signing of the Magna Carta in 1215 at Runnymede, England, was a significant step towards establishing the principle of the rule of law.
