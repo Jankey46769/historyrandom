@@ -1,1 +1,1 @@
-The signing of the Magna Carta in 1215 at Runnymede, England, was a significant step towards establishing the principle of the rule of law.
+Brexit, the United Kingdom's withdrawal from the European Union, was officially completed on January 31, 2020.
