@@ -1,1 +1,1 @@
-The ancient city of Rome was founded in 753 BC.
+Michelangelo completed the ceiling of the Sistine Chapel in 1512.
