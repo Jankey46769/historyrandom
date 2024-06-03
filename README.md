@@ -1,1 +1,1 @@
-The invention of the telephone by Alexander Graham Bell in 1876 revolutionized communication.
+The ancient Egyptian pharaoh Tutankhamun's tomb was discovered in 1922 by archaeologist Howard Carter.
