@@ -1,1 +1,1 @@
-The ancient Egyptian pharaoh Tutankhamun's tomb was discovered in 1922 by archaeologist Howard Carter.
+The Korean War, fought from 1950 to 1953, ended in an armistice, leaving the Korean Peninsula divided into North and South Korea.
