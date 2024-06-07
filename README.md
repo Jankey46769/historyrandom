@@ -1,1 +1,1 @@
-The Great Pyramid of Giza was built around 2560 BC.
+The ancient Egyptian pharaoh Tutankhamun's tomb was discovered in 1922 by archaeologist Howard Carter.
