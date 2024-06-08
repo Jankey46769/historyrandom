@@ -1,1 +1,1 @@
-The ancient Egyptian pharaoh Tutankhamun's tomb was discovered in 1922 by archaeologist Howard Carter.
+The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
