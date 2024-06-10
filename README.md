@@ -1,1 +1,1 @@
-The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
+The Cuban Revolution in 1959 brought Fidel Castro to power in Cuba.
