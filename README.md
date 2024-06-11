@@ -1,1 +1,1 @@
-The Cuban Revolution in 1959 brought Fidel Castro to power in Cuba.
+Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
