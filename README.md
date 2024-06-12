@@ -1,1 +1,1 @@
-Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
+The signing of the Magna Carta in 1215 at Runnymede, England, was a significant step towards establishing the principle of the rule of law.
