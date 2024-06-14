@@ -1,1 +1,1 @@
-The construction of Stonehenge in England began around 3000 BC.
+The first modern Olympics were held in Athens, Greece, in 1896.
