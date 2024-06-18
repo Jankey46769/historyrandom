@@ -1,1 +1,1 @@
-The Industrial Revolution began in Britain in the late 18th century, transforming economies and societies worldwide.
+The sinking of the RMS Titanic in 1912 remains one of the deadliest maritime disasters in history.
