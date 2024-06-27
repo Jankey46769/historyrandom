@@ -1,1 +1,1 @@
-The Code of Hammurabi, one of the earliest known sets of laws, dates back to around 1754 BC.
+The Space Race between the USA and the USSR culminated with the Apollo 11 moon landing in 1969.
