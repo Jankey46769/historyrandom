@@ -1,1 +1,1 @@
-The Space Race between the USA and the USSR culminated with the Apollo 11 moon landing in 1969.
+The sinking of the RMS Titanic in 1912 remains one of the deadliest maritime disasters in history.
