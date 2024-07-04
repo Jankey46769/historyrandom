@@ -1,1 +1,1 @@
-World War I, also known as the Great War, lasted from 1914 to 1918.
+Christopher Columbus reached the Americas in 1492, initiating European exploration and colonization.
