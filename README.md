@@ -1,1 +1,1 @@
-Christopher Columbus reached the Americas in 1492, initiating European exploration and colonization.
+The Great Pyramid of Giza was built around 2560 BC.
