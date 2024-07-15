@@ -1,1 +1,1 @@
-The Black Death, one of the deadliest pandemics in human history, peaked in Europe between 1347 and 1351.
+Ferdinand Magellan's expedition circumnavigated the globe between 1519 and 1522.
