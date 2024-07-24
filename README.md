@@ -1,1 +1,1 @@
-The Space Race between the USA and the USSR culminated with the Apollo 11 moon landing in 1969.
+The Cuban Revolution in 1959 brought Fidel Castro to power in Cuba.
