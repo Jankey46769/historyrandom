@@ -1,1 +1,1 @@
-The Cuban Revolution in 1959 brought Fidel Castro to power in Cuba.
+The fall of the Soviet Union in 1991 marked the end of the Cold War era.
