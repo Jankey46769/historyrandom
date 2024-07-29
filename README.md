@@ -1,1 +1,1 @@
-The fall of the Soviet Union in 1991 marked the end of the Cold War era.
+The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
