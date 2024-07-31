@@ -1,1 +1,1 @@
-Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
+The invention of the telephone by Alexander Graham Bell in 1876 revolutionized communication.
